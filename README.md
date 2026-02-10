@@ -2,6 +2,6 @@
 
 ： ✦ㅤblu . jeremy . valㅤ៸៸៸ㅤname prns or it/he
  
-៸៸៸ㅤcismale . lithosexual . almondsexual . recipromantic . polyamorous
+<img src="https://i.postimg.cc/Bb95xJ8f/Untitled618-20260209224341.png"/>
 
 <img src="https://i.postimg.cc/HnW2DPjb/Untitled522-20260113165334.png"/>
