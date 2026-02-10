@@ -1,4 +1,4 @@
-<img src="https://i.postimg.cc/Y023Kyhw/Untitled522-20260113165337.png"/>
+<img src="https://i.postimg.cc/qMs2yfXc/Untitled620-20260210001411.png"/>
 
 ： ✦ㅤblu . jeremy . valㅤ៸៸៸ㅤname prns or it/he
  
