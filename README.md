@@ -1,4 +1,4 @@
-![div](https://64.media.tumblr.com/e0d12b12cf3594410fc90448772c1a00/cd4e47777363f2f0-91/s2048x3072/52a865913819d7d27f3a4af2f6a232c79d0d8960.pnj)
+<img src="https://64.media.tumblr.com/e0d12b12cf3594410fc90448772c1a00/cd4e47777363f2f0-91/s2048x3072/52a865913819d7d27f3a4af2f6a232c79d0d8960.pnj" width="200" height="200" />
 ![png](https://64.media.tumblr.com/c6761dc95887de1e126e601563f99b8c/50cf0845222503b4-21/s400x600/d40849a197bdc6c31c595dc001276086d922f5fb.gifv#75x75)： ✦⠀ONE⠀⠀⎯⎯⎯⎯⎯⎯⎯⎯⎯ 
 ：　🐾　　　text
 
