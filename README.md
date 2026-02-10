@@ -1,7 +1,3 @@
 <img src="https://i.postimg.cc/qMs2yfXc/Untitled620-20260210001411.png"/>
 
-： ✦ㅤblu . jeremy . valㅤ៸៸៸ㅤname prns or it/he
- 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/Bb95xJ8f/Untitled618-20260209224341.png" width="400" height="400" />
-
-<img src="https://i.postimg.cc/HnW2DPjb/Untitled522-20260113165334.png"/>
+ ： ✦ seriously thouh, i have a total of like. 2 friends. please come up to me adn say hi, esp if you like hamilton, OK? also read my links and stuff, OK?
