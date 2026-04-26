@@ -1,9 +1,10 @@
-<img src="https://i.postimg.cc/qMs2yfXc/Untitled620-20260210001411.png"/>
+hi im a system
 
- ： ✦ seriously thouh, i have a total of like. 2 friends. please come up to me and say hi, esp if you like hamilton, OK?
-  
- ： ✦ also read my links. ok? they have important stuff. ok?
+my(hosts) name is muff or blu
 
- ： ✦ some other info that i should mention : im french, i dont appreciate french jokes if i dont know you, ok? ✦ my discord is normallyblu if you wanna bmf ✦ im homeschooled so im pretty active -> i am a minor so. if youre 18+ keep interactions sfw, ok? ✦ i am SO open to roleplays and stuff. i miss having buddies to roleplay with, if you need a character of any kind #lmk..? ✦ a part of my bpd means i get attached .like, REALLY easy.. even if i barely know you SIGH if i seem mad/upset at you im NOT!! just include me a lil and ill get over it ok? ✦ if i move away from you its either because : youre with other people and i dont want to be a bother / a conversation doesnt include me / youre covering a part of me -> its nothing personal Ok? ✦ no matter the pony im using, please use none/it or he pronouns. (ie; dont use she/her on me if im in a maria skin) ✦ for introjects, ask for pronouns. (name will have "introj" in it!) ✦ dont use buddy/related petnames on me it makes me upset,ok?ok. ✦ dont jokingly argue with me it freaks me out. tonetags are appreciated if you want to banter- clarify that youre joking,ok?ok. ✦ sourcemates (usually just hamilfictives on here) PLEEEAAASSSE interact. pls talk to usok.
- 
+we are french and dont like french jokes
+
+fronters usually in status
+
+
 [this is my main rentry](https://rentry.co/marylandmilitia)
