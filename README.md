@@ -8,6 +8,8 @@ fronters usually in status
 
 i have like. 3 friends max. you have no competition i promise. please talk to me.
 
+i like german n russian history
+
 
 [this is my main rentry](https://rentry.co/marylandmilitia)
 
