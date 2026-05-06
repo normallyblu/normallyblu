@@ -10,6 +10,10 @@ i have like. 3 friends max. you have no competition i promise. please talk to me
 
 i like german n russian history
 
+mentally + physically disabled always bgi thanks
+
+skins with **sys** are probably headmates
+
 
 [this is my main rentry](https://rentry.co/marylandmilitia)
 
