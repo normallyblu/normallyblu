@@ -14,6 +14,8 @@ mentally + physically disabled always bgi thanks
 
 skins with **sys** are probably headmates
 
+i like mortal kombat and napowars a lot rn
+
 
 [this is my main rentry](https://rentry.co/marylandmilitia)
 
