@@ -16,6 +16,7 @@ skins with **sys** are probably headmates
 
 i like mortal kombat and napowars a lot rn
 
+if you think squipemy is "problematic" dni hes a COMPUTER bro chill. 😭
 
 [this is my main rentry](https://rentry.co/anotherwoman)
 
