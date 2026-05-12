@@ -14,7 +14,7 @@ mentally + physically disabled always bgi thanks
 
 skins with **sys** are probably headmates
 
-i like mortal kombat and napowars a lot rn
+i like mortal kombat, napowars, && guts and blackpowder a lot rn
 
 if you think squipemy is "problematic" dni hes a COMPUTER bro chill. 😭
 
