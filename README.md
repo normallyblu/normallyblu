@@ -2,6 +2,8 @@ hi im a system
 
 my(hosts) name is muff or blu
 
+adults can interact idc just dont be an oddball
+
 we are french and dont like french jokes
 
 fronters usually in status
@@ -10,7 +12,7 @@ i have like. 3 friends max. you have no competition i promise. please talk to me
 
 i like german n russian history
 
-mentally + physically disabled always bgi thanks
+mentally + physically disabled always bgi thanks <- i have crazy chronic pain and i am a d1 complainer just ignore me or tell me off
 
 skins with **sys** are probably headmates
 
