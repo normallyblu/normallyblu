@@ -18,6 +18,8 @@ i like mortal kombat and napowars a lot rn
 
 if you think squipemy is "problematic" dni hes a COMPUTER bro chill. 😭
 
+**i am staff for an active roblox regiment and am usually busy from 7-9pm EST, if i randomly disconnect around those times i apologize. regiment is open, and feel free to whisper me if youre interested in joining - you are required to have a pc :)**
+
 [this is my main rentry](https://rentry.co/anotherwoman)
 
 <p align="center">
