@@ -20,6 +20,8 @@ i like mortal kombat, napowars, && guts and blackpowder a lot rn
 
 if you think squipemy is "problematic" dni hes a COMPUTER bro chill. 😭 <- same with hankcon
 
+i follow people i think are cool / wanna be friends with ok yay
+
 **i am staff for an active roblox regiment and am usually busy from 7-9pm EST, if i randomly disconnect around those times i apologize. regiment is open, and feel free to whisper me if youre interested in joining - you are required to have a pc :)**
 
 [this is my main rentry](https://rentry.co/anotherwoman)
