@@ -18,7 +18,7 @@ skins with **sys** are probably headmates
 
 i like mortal kombat, napowars, && guts and blackpowder a lot rn
 
-if you think squipemy is "problematic" dni hes a COMPUTER bro chill. 😭 <- same with hankcon
+im newgen!!!! i joined febuary 2026 b nice 2 me
 
 i follow people i think are cool / wanna be friends with ok yay
 
