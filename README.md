@@ -26,6 +26,8 @@ i follow people i think are cool / wanna be friends with ok yay
 
 [this is my main rentry](https://rentry.co/anotherwoman)
 
+check prns.cc for fronter info
+
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31kmezkkitf7iybqz2ba4rhuayv4&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&mode=dark&bar_color=53b14f&bar_color_cover=false">
