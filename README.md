@@ -1,4 +1,4 @@
-# ask fronter for their rentry or who they are for prns cc please !
+## ask fronter for their rentry or who they are for prns cc please !
 
 hi im a system
 
