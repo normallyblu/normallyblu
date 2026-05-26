@@ -1,4 +1,4 @@
-## ask fronter for their rentry or who they are for prns cc please !
+## ask fronter for their rentry or who they are for their prns.cc !
 
 hi im a system
 
@@ -18,7 +18,7 @@ mentally + physically disabled always bgi thanks <- i have crazy chronic pain an
 
 skins with **sys** are probably headmates
 
-i like mortal kombat, napowars, && guts and blackpowder a lot rn
+i like **sml**, mortal kombat, napowars, && guts and blackpowder a lot rn
 
 im newgen!!!! i joined febuary 2026 b nice 2 me
 
