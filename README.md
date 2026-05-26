@@ -1,3 +1,5 @@
+# ask fronter for their rentry or who they are for prns cc please !
+
 hi im a system
 
 my(hosts) name is muff or blu
@@ -26,7 +28,8 @@ i follow people i think are cool / wanna be friends with ok yay
 
 [this is my main rentry](https://rentry.co/anotherwoman)
 
-check prns.cc for fronter info
+<img width="403" height="341" alt="image" src="https://github.com/user-attachments/assets/21831d03-3b5d-4c6a-b66d-5e4225b63a11" />
+
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
