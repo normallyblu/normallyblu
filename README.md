@@ -41,6 +41,7 @@
   <summary> $\huge{\textsf{HEADMATE RENTRYS}}$ </summary>
  <div align="left">
 
+* pronouns.cc - https://pronouns.cc/@inglouriousbasterds
 * valor - https://rentry.co/anotherwoman
 * brooklyn - https://rentry.co/brooklyntheguy
 * rocky - https://rentry.co/projectrocky
