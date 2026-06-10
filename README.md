@@ -49,6 +49,7 @@
 * kroenen - https://rentry.co/ltcol
 * a. ham - https://rentry.co/areyousatisfied
 * squip - https://rentry.co/wintergreentictac
+* bateman - https://rentry.co/isimplyamnotthere
 <div align="left">
 </details>
 ㅤ
