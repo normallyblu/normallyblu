@@ -36,6 +36,7 @@
 * most headmates dont mind being treated like their source characters, but ask if unsure.
 * we are staff for an active roblox regiment and we get busy in the evenings.
 * we would appreciate if you read our headmates rentrys before interacting.
+* if u stop/pause in front of me n idk u im probably gonna hide u cos i get nervvyyy.,, sorryuy.. -v
 <div align="left">
 </details>
 
