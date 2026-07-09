@@ -1,5 +1,3 @@
-# QWEL SUPPORTERS DNI . DW FANDOM IWEC/IAYOR
-
 <div align="center">
   <img
   src="https://camo.githubusercontent.com/a93623c7f59825fdbab1927eeb2d18adb8e28ad0f0ee79e3bfc8f9cdef64b496/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f30396366303164613638633133376362353365386533313332663839653565332f363839613932333032333063386130322d65322f73323530783430302f643261303962306163323665343663336533326264396666623835646662336239373435323066642e67696676"
@@ -11,6 +9,17 @@
   
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&duration=2900&pause=100&color=690000&center=true&width=437&height=52&lines=god+forgive+you%2C;all+i+wanted+was+a+few+words+from+you." alt="Typing SVG" /></a>
 <div align="center">
+  <details>
+  <summary> $\huge{\textsf{IMPORTANT}}$ </summary>
+ <div align="left">
+
+* if you/your chatbox covers me/my friends or youre flooding my chat when im zoomed in im gonna hide you for 24hrs.
+* dandys world fans get hidden as soon as i see them. qwel supporters dni and unfriend me if we're already friends.
+* dont talk to me about hamilton / dbh unless i bring it up first.
+* if you irritate headmates with DNT/DNTUF in their name we'll hid you for 24hrs. its more of a suggestion than a boundary, but still.
+<div align="left">
+</details>
+  
 <details>
   <summary> $\huge{\textsf{BASICS}}$ </summary>
  <div align="left">
