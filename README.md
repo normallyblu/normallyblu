@@ -54,16 +54,7 @@
   <summary> $\huge{\textsf{HEADMATE RENTRYS}}$ </summary>
  <div align="left">
 
-* pronouns.cc - https://pronouns.cc/@inglouriousbasterds
-* valor - https://rentry.co/anotherwoman
-* brooklyn - https://rentry.co/brooklyntheguy
-* rocky - https://rentry.co/projectrocky
-* ameferryman - https://rentry.co/aferryman
-* kroenen - https://rentry.co/ltcol
-* a. ham - https://rentry.co/areyousatisfied
-* squip - https://rentry.co/wintergreentictac
-* bateman - https://rentry.co/isimplyamnotthere
-* spy - https://rentry.co/bloodydisguise
+* ygs lost privleges to see my links. ask for them
 <div align="left">
 </details>
 ㅤ
