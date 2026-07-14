@@ -26,7 +26,7 @@
 
 * french and learning german, we dont like french jokes
 * npd audhd odd ocd depression anxiety & chronic pain <- i am a d1 complainer. i am diagnosed with these so dont come @ me
-* history & military hyperfixation. sml, napowars, hamilton, gnb, & mortal kombat are a few of our main interests. [heres a list](https://rentry.co/colamemaybe)
+* history & military hyperfixation. sml, napowars, hamilton, gnb, & mortal kombat are a few of our main interests.
 * hamilton & detroit become human fandom dniuf or dniuid ty
 * big morrissey and rammstien fan , give them a listen
 * sometimes we r d1 freaks so sorry abt that
