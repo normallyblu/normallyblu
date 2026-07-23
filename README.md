@@ -17,6 +17,7 @@
 * dandys world fans get hidden as soon as i see them. qwel supporters dni and unfriend me if we're already friends.
 * dont talk to me about hamilton / dbh unless i bring it up first.
 * if you irritate headmates with DNT/DNTUF in their name we'll hid you for 24hrs. its more of a suggestion than a boundary, but still.
+* I OPENLY SHIP HANK X CONNOR AND SQUIP X JEREMY - apparently some people hate these to the point of blocking me 
 <div align="left">
 </details>
   
